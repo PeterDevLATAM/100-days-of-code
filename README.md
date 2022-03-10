@@ -1,5 +1,5 @@
 # I've joined the #100DaysOfCode Challenge
-[Push me on Twitter:](https://twitter.com/peterDev_ )
+[Push me on Twitter!!](https://twitter.com/peterDev_ )
 
 ## Contents
 
